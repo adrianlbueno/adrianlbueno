@@ -1,3 +1,4 @@
-# Hello, 
-I enjoy coding and design. Whether I’m writing code or working on illustrations, I like exploring the mix of technology and creativity. 
-I’m also a fan of staying active, listening to good music, and making stickers for fun.
+# Hey! I'm Adrian 👋 
+I code, I draw, and sometimes I make stickers just for fun. Music and staying active keep me going.
+
+ 
